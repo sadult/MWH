@@ -1,8 +1,7 @@
-## Single Tracks List for 
-## [ [MercadWasHere](https://t.me/MercadWasHNere) ]
+## Single Tracks List for [ [MercadWasHere](https://t.me/MercadWasHNere) ]
 
 * [Doppelgänger](https://t.me/MercadWasHere/16)
-* [I want to be with you on doomsday](https://t.me/MercadWasHere/17)
+* [I Want To Be With You On Doomsday](https://t.me/MercadWasHere/17)
 * [Ghors](https://t.me/MercadWasHere/74)
 * [5AM](https://t.me/MercadWasHere/75)
 * [ATWA](https://t.me/MercadWasHere/87)
@@ -12,35 +11,51 @@
 * [Nabayad](https://t.me/MercadWasHere/100)
 * [AK46](https://t.me/MercadWasHere/109)
 * [Zengî Zriyan](https://t.me/MercadWasHere/115)
-* [Akharin refigh](https://t.me/MercadWasHere/120)
+* [Akharin Refigh](https://t.me/MercadWasHere/120)
 * [1%](https://t.me/MercadWasHere/122)
-* [Jaana](https://t.me/MercadWasHere/127)
+* [Jaanaa](https://t.me/MercadWasHere/127)
 * [Marz](https://t.me/MercadWasHere/132)
-* [Zir Zamin](https://t.me/MercadWasHere/133)
+* [Zir zamin](https://t.me/MercadWasHere/133)
 * [Bache Paein](https://t.me/MercadWasHere/135)
 * [2](https://t.me/MercadWasHere/137)
-* [Ey lashgare saheb zaman](https://t.me/MercadWasHere/138)
+* [Ey Lashgare Saheb Zaman](https://t.me/MercadWasHere/138)
 * [Ayeneh](https://t.me/MercadWasHere/154)
 * [Bistuma](https://t.me/MercadWasHere/156)
 * [Leila](https://t.me/MercadWasHere/160)
 * [SAD](https://t.me/MercadWasHere/163)
 * [Clonazepam](https://t.me/MercadWasHere/164)
 * [Cardi](https://t.me/MercadWasHere/167)
-* [Vas ma khateras](https://t.me/MercadWasHere/182)
-* [Fermisk gash](https://t.me/MercadWasHere/191)
+* [Vas Ma Khateras](https://t.me/MercadWasHere/182)
+* [iفرمیسکی گش](https://t.me/MercadWasHere/191)
 * [Azmayeshgah](https://t.me/MercadWasHere/201)
 * [Hate me](https://t.me/MercadWasHere/219)
-* [Sounds of pain](https://t.me/MercadWasHere/224)
-* [Dashte ghasedak](https://t.me/MercadWasHere/234)
-* [Balenciaga](https://t.me/MercadWasHere/240)
-* [Everyday normal guy 2](https://t.me/MercadWasHere/244)
-* [Age farda bi man](https://t.me/MercadWasHere/245)
+* [Sounds Of Pain](https://t.me/MercadWasHere/224)
+* [Dashte Ghasedak](https://t.me/MercadWasHere/234)
+* [BALENCIAGA](https://t.me/MercadWasHere/240)
+* [Everyday Normal Guy 2](https://t.me/MercadWasHere/244)
+* [Age Farda Bi Man Shoroo Shod](https://t.me/MercadWasHere/245)
 * [Fairytale](https://t.me/MercadWasHere/247)
+* [Jadid Free$tyle](https://t.me/MercadWasHere/252)
+* [Kheshab](https://t.me/MercadWasHere/254)
+* [Piroozi](https://t.me/MercadWasHere/262)
+* [Piroozi Demo](https://t.me/MercadWasHere/265)
+* [Taghdir](https://t.me/MercadWasHere/266)
+* [Nabz](https://t.me/MercadWasHere/273)
+* [Vasiyat 2](https://t.me/MercadWasHere/285)
+* [TamashaChi](https://t.me/MercadWasHere/291)
+* [Chi shenidi](https://t.me/MercadWasHere/295)
+* [Raz](https://t.me/MercadWasHere/297)
+* [Ki Shenid?](https://t.me/MercadWasHere/298)
+* [Tale](https://t.me/MercadWasHere/303)
+* [Notife](https://t.me/MercadWasHere/312)
+* [Mommy Sorry](https://t.me/MercadWasHere/315)
+* [Pare Parvaz] your(https://t.me/MercadWasHere/316)
+* [DEMXN BXY](https://t.me/MercadWasHere/352
+* [Kotayî](https://t.me/MercadWasHere/369)
+* [Bimnasêne](https://t.me/MercadWasHere/370)
+* [Avazi](https://t.me/MercadWasHere/372)
+* [Lost On You](https://t.me/MercadWasHere/373)
+* [Jahadi](https://t.me/MercadWasHere/380)
 
 
-
-
-
-
-
-
+#
