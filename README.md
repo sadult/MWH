@@ -49,8 +49,8 @@
 * [Tale](https://t.me/MercadWasHere/303)
 * [Notife](https://t.me/MercadWasHere/312)
 * [Mommy Sorry](https://t.me/MercadWasHere/315)
-* [Pare Parvaz] your(https://t.me/MercadWasHere/316)
-* [DEMXN BXY](https://t.me/MercadWasHere/352
+* [Pare Parvaz](https://t.me/MercadWasHere/316)
+* [DEMXN BXY](https://t.me/MercadWasHere/352)
 * [Kotayî](https://t.me/MercadWasHere/369)
 * [Bimnasêne](https://t.me/MercadWasHere/370)
 * [Avazi](https://t.me/MercadWasHere/372)
