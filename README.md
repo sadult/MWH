@@ -56,6 +56,8 @@
 * [Avazi](https://t.me/MercadWasHere/372)
 * [Lost On You](https://t.me/MercadWasHere/373)
 * [Jahadi](https://t.me/MercadWasHere/380)
+* [Six Feet Under](https://t.me/MercadWasHere/404)
+* [Too Good To Say Goodbye](https://t.me/MercadWasHere/407)
 
 
 #
